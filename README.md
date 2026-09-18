@@ -10,7 +10,7 @@
   * 
 * 💞️ I’m looking to collaborate on creative technology, interactive installations, video systems, and experimental ideas
 * 
-* 📫 How to reach me: here on GitHub :)
+* 📫 How to reach me: dick7887@gmail.com
 * 
 <!---
 PhilDik/PhilDik is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
